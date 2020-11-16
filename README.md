@@ -1,2 +1,2 @@
 # le-petit-maghreb
-RESTAURANT 
+Association culturel et humanitaire.
